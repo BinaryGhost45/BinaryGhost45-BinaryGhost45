@@ -1,4 +1,4 @@
-# Hi, I'm BinaryGhost45 👋
+# Hi, I'm BinaryGhost45 (AKA A.D)👋
 
 Welcome to my GitHub!  
 
